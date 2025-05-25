@@ -1,1 +1,1 @@
-# Rulet-Geli-mi-Algoritma
+# Rulet-Gelismis-Algoritma
