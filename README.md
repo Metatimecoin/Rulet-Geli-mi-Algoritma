@@ -1,1 +1,0 @@
-# Rulet-Gelismis-Algoritma
